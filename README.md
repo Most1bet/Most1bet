@@ -8,7 +8,7 @@
 
 <div align="center">
 <a href="https://tinyurl.com/3kj2yj2s">
-<img align="center" src="https://static.cleverslide.de/wp-content/uploads/2020/04/Video-an-bestimmter-Stelle_8_YOUTUBE-min-1024x576.jpg" width="400">
+<img align="center" src="https://imgur.com/a/rLp8So2" width="400">
 </a>
 </div>
 
